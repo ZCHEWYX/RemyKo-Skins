@@ -4,7 +4,13 @@
 
 MM/DD/YY Update name: Update description
 
-6/2/2020 Update 2: Added all skins.
+6/17/2020 Update 3: Added InugamiKorone[戌神ころね][HD] by MikkuMix skin and Zestiny mix v1.5 and updated Prawilosc vJP without followpoints download link.
+
+# [InugamiKorone[戌神ころね][HD] by MikkuMix](https://drive.google.com/file/d/1-coCgrM_h5WvXE1NvUqHEPRgBQHXHRkq/view)
+![](https://cdn.discordapp.com/attachments/713023339807113267/722058519804641320/screenshot100.jpg)
+
+# [Zestiny mix v1.5](https://skins.osuck.net/index.php?newsid=520)
+![](https://akatsuki.pw/ss/J43ULE3R.png)
 
 # [Jace+6.25](http://puu.sh/FM1ks/263dae1cda.osk)
 ![](https://osu.ppy.sh/ss/14989089/f082)
@@ -20,7 +26,6 @@ MM/DD/YY Update name: Update description
 
 # [Prawilosc vJP without followpoints](https://drive.google.com/drive/folders/1rHedyDJx-uOVr_uumoUw3e5PnD8bUPc5)
 ![](https://osu.ppy.sh/ss/14989154/f2e0)
-
 
 # [- MikuGalaxy](http://www.mediafire.com/file/dmh71kd189b03s7/-_MikuGalaxy.osk/file)
 ![](https://osu.ppy.sh/ss/14998031/212f)
