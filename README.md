@@ -4,7 +4,10 @@
 
 MM/DD/YY Update name: Update description
 
-6/17/2020 Update 4: Updated Prawilosc vJP without followpoints because I forgot to update it the last time lol.
+7/20/2020 Update 5: Added - # Helltaker skin.
+
+# [- # Helltaker](https://drive.google.com/file/d/1LGPvqRAj7lMp2ylJbNuytv9YNwOFamv_/view)
+![](https://cdn.discordapp.com/attachments/713023339807113267/734728717519028306/screenshot135.jpg)
 
 # [InugamiKorone[戌神ころね][HD] by MikkuMix](https://drive.google.com/file/d/1-coCgrM_h5WvXE1NvUqHEPRgBQHXHRkq/view)
 ![](https://cdn.discordapp.com/attachments/713023339807113267/722058519804641320/screenshot100.jpg)
