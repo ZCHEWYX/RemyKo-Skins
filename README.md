@@ -4,7 +4,10 @@
 
 MM/DD/YY Update name: Update description
 
-7/20/2020 Update 5: Added - # Helltaker skin.
+8/2/2020 Update 6: Added Rafis 2018-03-26 HDDT skin.
+
+# [Rafis 2018-03-26 HDDT](https://drive.google.com/drive/folders/1EovM6xUynkv78pPHtYT1_jq0y5aI4rsS)
+![](https://cdn.discordapp.com/attachments/713023339807113267/739424402453823528/screenshot145.jpg)
 
 # [- # Helltaker](https://drive.google.com/file/d/1LGPvqRAj7lMp2ylJbNuytv9YNwOFamv_/view)
 ![](https://cdn.discordapp.com/attachments/713023339807113267/734728717519028306/screenshot135.jpg)
