@@ -4,7 +4,13 @@
 
 MM/DD/YY Update name: Update description
 
-8/2/2020 Update 6: Added Rafis 2018-03-26 HDDT skin.
+8/5/2020 Update 7: Added Rafis 2017-08-10 and BlueFlame29082017.
+
+# [BlueFlame29082017](https://www.mediafire.com/file/3ghr5sscomvegjc/BlueFlame29082017.osk/file)
+![](https://cdn.discordapp.com/attachments/713023339807113267/740531686357467240/screenshot148.jpg)
+
+# [Rafis 2017-08-10](https://drive.google.com/drive/folders/1ba_fxYUBnwoOqsx6JzpRT0uzfGsZkFEh)
+![](https://cdn.discordapp.com/attachments/713023339807113267/740531700450459769/screenshot149.jpg)
 
 # [Rafis 2018-03-26 HDDT](https://drive.google.com/drive/folders/1EovM6xUynkv78pPHtYT1_jq0y5aI4rsS)
 ![](https://cdn.discordapp.com/attachments/713023339807113267/739424402453823528/screenshot145.jpg)
