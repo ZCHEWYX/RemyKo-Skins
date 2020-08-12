@@ -4,7 +4,7 @@
 
 MM/DD/YY Update name: Update description
 
-8/5/2020 Update 7: Added Rafis 2017-08-10 and BlueFlame29082017.
+8/12/2020 Update 8: Removed 404 SkinNotFound v2.
 
 # [BlueFlame29082017](https://www.mediafire.com/file/3ghr5sscomvegjc/BlueFlame29082017.osk/file)
 ![](https://cdn.discordapp.com/attachments/713023339807113267/740531686357467240/screenshot148.jpg)
@@ -41,9 +41,6 @@ MM/DD/YY Update name: Update description
 
 # [- MikuGalaxy](http://www.mediafire.com/file/dmh71kd189b03s7/-_MikuGalaxy.osk/file)
 ![](https://osu.ppy.sh/ss/14998031/212f)
-
-# [404 SkinNotFound v2](https://drive.google.com/file/d/1FMltv1fmzkYLbUqORRVGfbrTXnRH32No/view)
-![](https://osu.ppy.sh/ss/15010270/69cc)
 
 # [Hugofrost](https://mega.nz/#!EF5XSAaS!Wmb2ujKiJT-O-8sxB-sjEcMZzjBuHj3jLc6hxFsalAc)
 ![](https://osu.ppy.sh/ss/15010290/872b)
