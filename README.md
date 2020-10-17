@@ -4,7 +4,10 @@
 
 MM/DD/YY Update name: Update description
 
-8/12/2020 Update 8: Removed 404 SkinNotFound v2.
+10/17/2020 Update 9: Added Kingling.
+
+# [Kingling](http://ck1t.ru/s-1488)
+![](https://cdn.discordapp.com/attachments/713023339807113267/767004623734439966/screenshot178.jpg)
 
 # [BlueFlame29082017](https://www.mediafire.com/file/3ghr5sscomvegjc/BlueFlame29082017.osk/file)
 ![](https://cdn.discordapp.com/attachments/713023339807113267/740531686357467240/screenshot148.jpg)
