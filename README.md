@@ -39,11 +39,5 @@
 # [CookiZookis Skin Edit](https://skins.osuck.net/index.php?newsid=1107)
 ![](https://osu.ppy.sh/ss/14989148/041b)
 
-# [CookiZookis Skin Edit](https://drive.google.com/file/d/10DjbX8LrEobIC7KhxzJ--2ScWEvx06K_/view?usp=sharing)
-![](https://osu.ppy.sh/ss/14989154/f2e0)
 
-# [CookiZookis Skin Edit](http://www.mediafire.com/file/dmh71kd189b03s7/-_MikuGalaxy.osk/file)
-![](https://osu.ppy.sh/ss/14998031/212f)
 
-# [CookiZookis Skin Edit](https://mega.nz/#!EF5XSAaS!Wmb2ujKiJT-O-8sxB-sjEcMZzjBuHj3jLc6hxFsalAc)
-![](https://osu.ppy.sh/ss/15010290/872b)
