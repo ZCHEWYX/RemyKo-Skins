@@ -1,6 +1,6 @@
 # All of CookiZooki Skins!
 # These are all of the skins That Cooki made/edit.
-# Pls Feel feel to DM me on discord. chewycx#2515.
+# Please Feel feel to DM me on discord if you have any problems chewycx#2515.
 
 
 # [CookiZookis Skin Edit](http://ck1t.ru/s-1488)
