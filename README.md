@@ -7,6 +7,7 @@
 # Discord - https://discord.gg/CVnVxaa
 
 # [CookiZookis Skin Edit]
+  ![](https://media.discordapp.net/attachments/746970713293848619/771954550571532288/screenshot016.jpg?width=1204&height=677)
 
 # [CookiZookis Skin Edit]
 
