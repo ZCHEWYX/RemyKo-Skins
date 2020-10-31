@@ -18,7 +18,7 @@
 # [CookiZookis Skin Edit V1.2.1](https://www.dropbox.com/s/0j2l3cplvec8dqq/CookiZooki%27s%20Skin%20Edit%20v1.2.1.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998515718914058/screenshot026.jpg)
   
-# [CookiZookis Skin Edit V1.2.1 Idke Cursor](https://www.dropbox.com/transfer/AAAAAPpOWxL9Cjo5c99yJzNz69y07treWB6jtY21lVssNGG-jnOk2g0)
+# [CookiZookis Skin Edit V1.2.1 Idke Cursor](https://www.dropbox.com/s/vbmqi0m04rs34us/CookiZooki%27s%20Skin%20Edit%20v1.2.1%20with%20Idke%27s%20Cursor.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/771959768763727892/screenshot018.jpg)
  
 # [CookiZookis Skin Edit V1.3](https://www.dropbox.com/s/zmjt6smv8u51lwn/CookiZooki%27s%20Skin%20Edit%20v1.3.osk?dl=0)
