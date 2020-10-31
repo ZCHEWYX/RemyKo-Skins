@@ -11,11 +11,12 @@
 
 # [CookiZookis Skin Edit]
 
-# [CookiZookis Skin Edit]
+# [CookiZookis Skin Edit V1.2]
+![](https://cdn.discordapp.com/attachments/746970713293848619/771959740489662464/screenshot022.jpg)
 
-# [CookiZookis Skin Edit]
+# [CookiZookis Skin EditV1.2.1]
 
-# [CookiZookis Skin Edit]
+# [CookiZookis Skin Edit V1.2.1 Idke Cursor]
 
 # [CookiZookis Skin Edit)
 
@@ -25,8 +26,8 @@
 
 # [CookiZookis Skin Edit]
 
-# [CookiZookis Skin Edit]
-
-# [CookiZookis Skin Edit]
-
+# [CookiZookis Skin Edit V1.3]
+![](https://cdn.discordapp.com/attachments/746970713293848619/771959752007745536/screenshot023.jpg)
+# [CookiZookis Skin Edit V2.0]
+ ![](https://cdn.discordapp.com/attachments/746970713293848619/771959740489662464/screenshot022.jpg)
 
