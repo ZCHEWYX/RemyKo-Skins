@@ -17,6 +17,7 @@
 # [CookiZookis Skin EditV1.2.1]
 
 # [CookiZookis Skin Edit V1.2.1 Idke Cursor]
+![](https://cdn.discordapp.com/attachments/746970713293848619/771959768763727892/screenshot018.jpg)
 
 # [CookiZookis Skin Edit)
 
