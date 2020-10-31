@@ -6,7 +6,7 @@
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
-# [CookiZookis Skin Edit]
+# [CookiZookis Skin Edit](https://www.dropbox.com/s/d0b84ohdfce8mrd/CookiZooki%27s%20Skin%20Edit.osk?dl=0)
   ![](https://media.discordapp.net/attachments/746970713293848619/771954550571532288/screenshot016.jpg?width=1204&height=677)
 
 # [CookiZookis Skin Edit]
@@ -19,7 +19,8 @@
 # [CookiZookis Skin Edit V1.2.1 Idke Cursor]
 ![](https://cdn.discordapp.com/attachments/746970713293848619/771959768763727892/screenshot018.jpg)
 
-# [CookiZookis Skin Edit)
+# [CookiZookis Skin Edit V1.3]
+![](https://cdn.discordapp.com/attachments/746970713293848619/771959752007745536/screenshot023.jpg)
 
 # [CookiZookis Skin Edit]
 
@@ -28,7 +29,7 @@
 # [CookiZookis Skin Edit]
 
 # [CookiZookis Skin Edit V1.3]
-![](https://cdn.discordapp.com/attachments/746970713293848619/771959752007745536/screenshot023.jpg)
-# [CookiZookis Skin Edit V2.0]
+![]()
+# [CookiZookis Skin Rafis Sin Edit]
  ![](https://cdn.discordapp.com/attachments/746970713293848619/771959740489662464/screenshot022.jpg)
 
