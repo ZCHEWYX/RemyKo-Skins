@@ -10,7 +10,7 @@
   ![](https://media.discordapp.net/attachments/746970713293848619/771954550571532288/screenshot016.jpg?width=1204&height=677)
 
 # [CookiZookis Skin Edit V1.1](https://www.dropbox.com/s/rq1r7xsm8dh37px/CookiZooki%27s%20Skin%20Edit%20v1.1.osk?dl=0)
-  ![](file:///C:/Users/elutt_4qb4n88/AppData/Local/osu!/Screenshots/screenshot028.jpg)
+  ![](https://cdn.discordapp.com/attachments/728495702283386984/771998500854169600/screenshot027.jpg)
 
 # [CookiZookis Skin Edit V1.2](https://www.dropbox.com/s/348a99nciiw9x2u/CookiZooki%27s%20Skin%20Edit%20v1.2.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/771959777969438731/screenshot017.jpg)
@@ -35,7 +35,10 @@
   
 # [CookiZooki's Old Skin Edit](https://www.dropbox.com/s/zxvjs83l07m26z2/CookiZooki%27s%20Old%20Skin%20Edit.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/772010818626912266/screenshot038.jpg)
+  
+[CookiZooki's Minimalistic Edit.osk](https://www.dropbox.com/s/dzxedz83wz4z5pb/CookiZooki%27s%20Minimalistic%20Edit.osk?dl=0)
+  ![](https://cdn.discordapp.com/attachments/728495702283386984/771998500854169600/screenshot027.jpg) 
 
-# [CookiZookis Skin Rafis Sin Edit]
+# [CookiZookis Skin Rafis Sin Edit](https://www.dropbox.com/s/uo4408vnzk1sfiv/CookiZooki%27s%20Rafis%20Skin%20Edit.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/771959740489662464/screenshot022.jpg)
 
