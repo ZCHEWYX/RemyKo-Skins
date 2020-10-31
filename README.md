@@ -34,7 +34,7 @@
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998465492123648/screenshot032.jpg)
   
 # [CookiZooki's Old Skin Edit](https://www.dropbox.com/s/zxvjs83l07m26z2/CookiZooki%27s%20Old%20Skin%20Edit.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/728495702283386984/772010818626912266/screenshot038.jpg)
+  ![](https://cdn.discordapp.com/attachments/728495702283386984/772013265709694976/screenshot040.jpg)
   
 [CookiZooki's Minimalistic Edit.osk](https://www.dropbox.com/s/dzxedz83wz4z5pb/CookiZooki%27s%20Minimalistic%20Edit.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998500854169600/screenshot027.jpg) 
