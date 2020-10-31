@@ -12,7 +12,7 @@
 # [CookiZookis Skin Edit]
 
 # [CookiZookis Skin Edit V1.2]
-![](https://cdn.discordapp.com/attachments/746970713293848619/771959740489662464/screenshot022.jpg)
+![](https://cdn.discordapp.com/attachments/746970713293848619/771959777969438731/screenshot017.jpg)
 
 # [CookiZookis Skin EditV1.2.1]
 
