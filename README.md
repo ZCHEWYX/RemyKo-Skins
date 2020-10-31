@@ -11,7 +11,7 @@
 
 # [CookiZookis Skin Edit]
 
-# [CookiZookis Skin Edit V1.2]
+# [CookiZookis Skin Edit V1.2](https://www.dropbox.com/s/348a99nciiw9x2u/CookiZooki%27s%20Skin%20Edit%20v1.2.osk?dl=0)
 ![](https://cdn.discordapp.com/attachments/746970713293848619/771959777969438731/screenshot017.jpg)
 
 # [CookiZookis Skin EditV1.2.1]
