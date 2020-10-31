@@ -30,6 +30,9 @@
 # [CookiZookis Skin Edit V1.3.1](https://www.dropbox.com/s/pdrqewsxku1iwf4/CookiZooki%27s%20Skin%20Edit%20v1.3.1.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998508270092288/screenshot029.jpg)
   
+  # [CookiZookis Skin Edit V1.3.2](https://www.dropbox.com/s/qzav4icxd53r0dz/CookiZooki%27s%20Skin%20Edit%20v1.3.2.osk?dl=0)
+  ![](https://cdn.discordapp.com/attachments/728495702283386984/772015859660488734/screenshot042.jpg)
+  
 # [Tofuestic MiXeD (Cooki Version)](https://www.dropbox.com/s/j94jee7nulfqhsc/Tofuestic%20MiXeD%20%28Cooki%20Version%29.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998465492123648/screenshot032.jpg)
   
