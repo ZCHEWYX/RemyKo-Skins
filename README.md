@@ -16,7 +16,7 @@
   ![](https://cdn.discordapp.com/attachments/746970713293848619/771959777969438731/screenshot017.jpg)
 
 # [CookiZookis Skin EditV1.2.1]
-  ![]
+  ![](file:///C:/Users/elutt_4qb4n88/AppData/Local/osu!/Screenshots/screenshot026.jpg)
   
 # [CookiZookis Skin Edit V1.2.1 Idke Cursor]
   ![](https://cdn.discordapp.com/attachments/746970713293848619/771959768763727892/screenshot018.jpg)
