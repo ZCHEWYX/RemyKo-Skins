@@ -6,7 +6,7 @@
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
-# [CookiZooki's Skin Edit Bacon Boi](https://www.dropbox.com/s/d0b84https://www.dropbox.com/transfer/AAAAAPv5JDCU7SIyDAXyFveCxQWSSv2fELjaoOzU0a_mrfmSjiiDteIohdfce8mrd/CookiZooki%27s%20Skin%20Edit.osk?dl=0)
+# [CookiZooki's Skin Edit Bacon Boi](https://drive.google.com/file/d/1d6ZOcLOpxmmXUbhu0Z8857DBVoWwH2cq/view?usp=sharing)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/774746860593086484/screenshot044.jpg)
   
 # [CookiZooki's Skin Edit](https://www.dropbox.com/s/d0b84ohdfce8mrd/CookiZooki%27s%20Skin%20Edit.osk?dl=0)
