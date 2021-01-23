@@ -6,9 +6,9 @@
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
-   # [CookiZooki's Skin Edit v1.3.4.2.](https://www.dropbox.com/s/yrf8k5zurwvmwpp/CookiZooki's%20Skin%20Edit%20v1.3.4.1.osk?dl=0)
-     ![]https://cdn.discordapp.com/attachments/746970713293848619/802650334761451570/screenshot079.jpg)
-
+# [CookiZooki's Skin Edit v1.3.4.2.](https://www.dropbox.com/s/yrf8k5zurwvmwpp/CookiZooki's%20Skin%20Edit%20v1.3.4.1.osk?dl=0)
+   ![](https://cdn.discordapp.com/attachments/746970713293848619/802650334761451570/screenshot079.jpg)
+   
 # [CookiZooki's Skin Edit v1.3.4.1](https://www.dropbox.com/s/yrf8k5zurwvmwpp/CookiZooki's%20Skin%20Edit%20v1.3.4.1.osk?dl=0)
    ![](https://cdn.discordapp.com/attachments/746970713293848619/795333490736234516/screenshot065.jpg)
    
