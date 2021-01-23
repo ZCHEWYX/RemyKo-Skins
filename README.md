@@ -6,9 +6,7 @@
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
-# [CookiZooki's Pet WHALE](https://drive.google.com/drive/u/0/folders/1FDIJJG5a-uRc4JuILQI8Ed1fXjisJSxh)
-  ![](https://cdn.discordapp.com/attachments/746970713293848619/800180604062269451/screenshot075.jpg)
-  
+
 # [CookiZooki's Skin Edit v1.3.4.1](https://www.dropbox.com/s/yrf8k5zurwvmwpp/CookiZooki's%20Skin%20Edit%20v1.3.4.1.osk?dl=0)
    ![](https://cdn.discordapp.com/attachments/746970713293848619/795333490736234516/screenshot065.jpg)
    
