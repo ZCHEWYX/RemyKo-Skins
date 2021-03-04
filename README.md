@@ -8,7 +8,7 @@
 
 
 # [CookiZooki's Skin Edit v1.3.5.1](https://www.dropbox.com/s/3my7q9vqmhcxjbn/CookiZooki's%20Skin%20Edit%20v1.3.5.1.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/758455783796506635/816904500984021042/screenshot102.jpg)
+   ![](https://cdn.discordapp.com/attachments/758455783796506635/816904500984021042/screenshot102.jpg)
    
 # [CookiZooki's Skin Edit v1.3.5](https://www.dropbox.com/s/6ugse8ohhsiktg4/CookiZooki's%20Skin%20Edit%20v1.3.5.osk?dl=0)
    ![](https://cdn.discordapp.com/attachments/728495702283386984/815695395023749171/screenshot098.jpg)
