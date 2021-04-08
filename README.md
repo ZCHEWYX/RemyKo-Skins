@@ -1,4 +1,4 @@
-0# All of CookiZooki Skins!
+# All of CookiZooki Skins!
 # These are all of the skins That Cooki made/edit.
 # Please feel free to DM me on discord if you have any problems chewycx#2515.
 # And it would help lots if you check these out thank you :)
