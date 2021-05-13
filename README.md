@@ -6,6 +6,9 @@
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
+# [CookiZooki + Chaos Skin Edit v1.4.1](https://www.dropbox.com/s/ql5qq2m1cicap5y/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.4.1.osk?dl=0)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/842447275451482152/screenshot007.jpg)
+
 # [CookiZooki + Chaos Skin Edit v1.4](https://www.dropbox.com/s/gbtpbn2e6ab26la/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.4.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/836625931350048768/screenshot001.jpg)
 
