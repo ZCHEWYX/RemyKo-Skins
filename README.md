@@ -5,9 +5,11 @@
 # Twitch - https://www.twitch.tv/cookizooki/
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
+# [CookiZooki + Chaos Skin Edit v1.5.2.1](https://www.dropbox.com/s/k7k4spcoixd4hf0/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.5.2.1.osk?dl=0)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/855919840542982164/screenshot021.jpg)
 
 # [CookiZooki + Chaos Skin Edit v1.5.2](https://www.dropbox.com/s/yxggfp5c7cnzi3j/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.5.2.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/758455783796506635/853212391063945256/screenshot017.jpg)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/855919816456273920/screenshot017.jpg)
 
 # [CookiZooki + Chaos Skin Edit v1.5.1](https://www.dropbox.com/s/82u5iv6pxs8cioc/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.5.1.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/851691428777820171/screenshot015.jpg)
