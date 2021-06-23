@@ -7,7 +7,7 @@
 # Discord - https://discord.gg/CVnVxaa
 
 # [CookiZooki + Chaos Skin Edit v1.5.3](https://www.dropbox.com/s/dkvpthtxmwpauu9/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.5.3.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/746970713293848619/856300207113109524/screenshot024.jpg)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/857375072335167488/screenshot025.jpg)
 
 # [CookiZooki + Chaos Skin Edit v1.5.2.1](https://www.dropbox.com/s/lp8nprbxz5h0ua4/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.5.2.1.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/746970713293848619/856300207113109524/screenshot024.jpg)
