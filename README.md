@@ -1,8 +1,8 @@
-# All of CookiZooki Skins!
-# These are all of the skins That Cooki made/edit.
+# All of RemyKo/CookiZooki Skins!
+# These are all of the skins That RemyKo/Cooki made or edit.
 # Please feel free to DM me on discord if you have any problems. chewycx#2515
 # And it would help lots if you check these out, thank you!! 😊
-# Twitch - https://www.twitch.tv/cookizooki/
+# Twitch - https://www.twitch.tv/remyko_
 # Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
 # Discord - https://discord.gg/CVnVxaa
 
