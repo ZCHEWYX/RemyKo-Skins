@@ -2,8 +2,8 @@
 # These are all of the skins That RemyKo/Cooki made or edit.
 # Please feel free to DM me on discord if you have any problems. chewycx#2515
 # And it would help lots if you check these out, thank you!! 😊
-# Twitch - https://www.twitch.tv/remyko_
-# Youtube- https://www.youtube.com/channel/UCEjYsm0SM-t6lwuRgh8KfBw
+# Twitch - https://bit.ly/39TmwVT
+# Youtube- https://bit.ly/3CNYI1T
 # Discord - https://discord.gg/CVnVxaa
 
 # [CookiZooki + Chaos Skin Edit v1.7](https://www.dropbox.com/s/urzied9hglsciy2/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.7.osk?dl=0)
