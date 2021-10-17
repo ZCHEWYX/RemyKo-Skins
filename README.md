@@ -58,7 +58,7 @@
   ![](https://cdn.discordapp.com/attachments/728495702283386984/772015859660488734/screenshot042.jpg)
 
 # [CookiZooki's Skin Edit V1.3.1](https://www.dropbox.com/s/pdrqewsxku1iwf4/CookiZooki%27s%20Skin%20Edit%20v1.3.1.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/746970713293848619/899096417455443968/screenshot086.jpg)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/899097581941031022/screenshot087.jpg)
 
 # [CookiZooki's Skin Edit V1.3](https://www.dropbox.com/s/zmjt6smv8u51lwn/CookiZooki%27s%20Skin%20Edit%20v1.3.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998419006259200/screenshot033.jpg)
