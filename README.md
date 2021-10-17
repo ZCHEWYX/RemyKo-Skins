@@ -6,6 +6,9 @@
 # Youtube- https://bit.ly/3CNYI1T
 # Discord - https://discord.gg/CVnVxaa
 
+# [RemyKo + Chaos Skin Edit v1.8.osk](https://www.dropbox.com/s/36i0x3m1bxlsov1/RemyKo%20%2B%20Chaos%20Skin%20Edit%20v1.8.osk?dl=0)
+  ![](https://cdn.discordapp.com/attachments/883932880923951134/886349059613417502/screenshot070.jpg)
+
 # [CookiZooki + Chaos Skin Edit v1.7](https://www.dropbox.com/s/urzied9hglsciy2/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.7.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/883932880923951134/886349059613417502/screenshot070.jpg)
   
@@ -55,7 +58,7 @@
   ![](https://cdn.discordapp.com/attachments/728495702283386984/772015859660488734/screenshot042.jpg)
 
 # [CookiZooki's Skin Edit V1.3.1](https://www.dropbox.com/s/pdrqewsxku1iwf4/CookiZooki%27s%20Skin%20Edit%20v1.3.1.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/758455783796506635/860457666966978571/screenshot038.jpg)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/899096417455443968/screenshot086.jpg)
 
 # [CookiZooki's Skin Edit V1.3](https://www.dropbox.com/s/zmjt6smv8u51lwn/CookiZooki%27s%20Skin%20Edit%20v1.3.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/728495702283386984/771998419006259200/screenshot033.jpg)
