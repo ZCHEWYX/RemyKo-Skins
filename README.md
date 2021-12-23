@@ -16,7 +16,7 @@
   ![](https://cdn.discordapp.com/attachments/746970713293848619/909164624119734322/screenshot096.jpg)
   
 # [RemyKo + Chaos Skin Edit v1.8.](https://www.dropbox.com/s/36i0x3m1bxlsov1/RemyKo%20%2B%20Chaos%20Skin%20Edit%20v1.8.osk?dl=0)
-  ![](https://cdn.discordapp.com/attachments/746970713293848619/899097581941031022/screenshot087.jpg)
+  ![](https://cdn.discordapp.com/attachments/746970713293848619/899096417455443968/screenshot086.jpg)
 
 # [CookiZooki + Chaos Skin Edit v1.7](https://www.dropbox.com/s/urzied9hglsciy2/CookiZooki%20%2B%20Chaos%20Skin%20Edit%20v1.7.osk?dl=0)
   ![](https://cdn.discordapp.com/attachments/883932880923951134/886349059613417502/screenshot070.jpg)
