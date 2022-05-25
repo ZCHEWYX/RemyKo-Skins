@@ -7,7 +7,7 @@
 # Discord - https://discord.gg/CVnVxaa
 
 # [RemyKo + Chaos Skin Edit v1.12.1](https://bit.ly/3FAwABX )
-  ![](https://cdn.discordapp.com/attachments/917061789089427487/973748672661708840/screenshot196.jpg)
+  ![](https://cdn.discordapp.com/attachments/917061789089427487/979133445659832430/screenshot196.jpg)
   
 # [RemyKo + Chaos Skin Edit v1.13](http://www.mediafire.com/file/qeobwm8lcokwzoe/RemyKo_%252B_Chaos_Skin_Edit_v1.13.osk/file)
   ![](https://cdn.discordapp.com/attachments/917061789089427487/950376048397271080/screenshot173.jpg)
