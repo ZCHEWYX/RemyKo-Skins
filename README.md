@@ -6,6 +6,10 @@
 # Youtube- https://bit.ly/3CNYI1T
 # Discord - https://discord.gg/CVnVxaa
 
+
+# [RemyKo + Chaos Skin Edit v1.14.](https://www.mediafire.com/file/udosxdoey933u3f/RemyKo+++Chaos+Skin+Edit+v1.14.osk/file)
+   ![](https://cdn.discordapp.com/attachments/917061789089427487/1112475298873737267/screenshot328.jpg)
+   
 # [RemyKo + Chaos Skin Edit v1.8.1](http://www.mediafire.com/file/biu3x7pggsrxk8s/RemyKo+%2B+Chaos+Skin+Edit+v1.8.1.osk)
    ![](https://cdn.discordapp.com/attachments/917061789089427487/1035692668874936441/screenshot283.jpg)
    
